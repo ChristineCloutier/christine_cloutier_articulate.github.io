@@ -1,1 +1,1 @@
-# christine_cloutier_articulate.github.io
+# https://christinecloutier.github.io/christine_cloutier_ai_integration.github.io/
